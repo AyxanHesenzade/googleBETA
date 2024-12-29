@@ -1,0 +1,1 @@
+# googlenin ilk veb sitesinin kopyasi
